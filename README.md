@@ -31,7 +31,7 @@
 🔗 Check Out My Work
 
 All Projects: Visit GitHub
-Resume: [View Resume](https://drive.google.com/file/d/12runt0ba24LZBKsyWOquBr0Uxi87REUb/view?usp=sharing)
+Resume: [View Resume](https://docs.google.com/document/d/1cHnivJ5VDOd9HqHxI_ElA7nKu0fSi864oON01DkqvCs/edit?usp=drivesdk)
 
 🧠 Fun Facts
 
